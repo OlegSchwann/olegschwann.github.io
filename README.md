@@ -1,1 +1,1 @@
-https://olegschwann.github.io/Semenov_Maxim_CV.pdf
+https://olegschwann.github.io/Max_Simonov_CV.pdf
